@@ -1,4 +1,4 @@
-### Hi there, I'm 7Frosty  👋
+### Hi there, I'm Shikto  👋
 
 ## I'm a Student, Gamer, Techmaniac, Developer, and Youtuber!!
 
